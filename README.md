@@ -13,6 +13,3 @@
  
 ![UniConverter_20201128143047](https://user-images.githubusercontent.com/69683125/100497603-bfe88f00-3186-11eb-85ee-ee36ddb726fe.gif)
 
-# Eww! Missed the championship for a little bit..
-![8  Winner_Team Magnetar from MIST](https://user-images.githubusercontent.com/69683125/100497607-c2e37f80-3186-11eb-8e8b-491e8c95698d.jpg)
-
