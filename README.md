@@ -4,7 +4,7 @@
 ### "Institute of Nuclear Medicine and Allied Sciences (INMAS), Bangladesh" inaugurated PET scan in the country; they wanted to explore "What factors could influence mass rural people to deviate from PET scanning tech."
 ![UniConverter_20201128142621](https://user-images.githubusercontent.com/69683125/100497609-c5de7000-3186-11eb-999a-0cfc63806e72.gif)
 
-# Selected for final round among 25 teams & achieved 3rd position
+# Qualified for final round among 25 teams & achieved 3rd position
 ![Selected for Final Round](https://user-images.githubusercontent.com/69683125/100498063-c75d6780-3189-11eb-804e-f722b2e4d574.jpg)
 
 
